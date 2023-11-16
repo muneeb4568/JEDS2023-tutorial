@@ -1,1 +1,1 @@
-[# JEDS2023-tutorial](https://assets-global.website-files.com/6545fb07d38cc813a51b9971/654dcdb3b4532ad3cc89ac36_%E2%80%94Pngtree%E2%80%94abstract%20low%20poly%20grey%20bright_1207502.jpg)https://assets-global.website-files.com/6545fb07d38cc813a51b9971/654dcdb3b4532ad3cc89ac36_%E2%80%94Pngtree%E2%80%94abstract%20low%20poly%20grey%20bright_1207502.jpg
+# <img src="jeds2023.png" width="17%" style="margin:auto;display:block;"/>
