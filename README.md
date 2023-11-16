@@ -1,3 +1,3 @@
 # <img src="jeds2023.png" width="100%" style="margin:auto;display:block;"/>
 
-* Lien classroom : [LINK](https://classroom.github.com/a/MuG26NDh)
+* Lien classroom : [LINK]([https://classroom.github.com/a/MuG26NDh](https://classroom.github.com/a/FGwPwuAG)https://classroom.github.com/a/FGwPwuAG)
